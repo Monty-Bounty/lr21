@@ -54,3 +54,6 @@ c) Ньютона
 
 
 ![{A1DC0FC9-FCA0-42E1-94BB-B3FE5CC8AA46}](https://github.com/user-attachments/assets/65e37dbe-103c-46fe-b246-82f96ca48d3c)
+
+![изображение](https://github.com/user-attachments/assets/6f1b51f1-fe31-46e0-b293-ee5c3d20a24e)
+
